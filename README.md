@@ -9,3 +9,4 @@ I'm A T_T
 I'M A Fuc** Love
 
 {Love T_T}
+[![Discord server](https://discordapp.com/api/guilds/563948030533959687/embed.png?style=banner4)](https://discord.gg/MgVaazZ)
